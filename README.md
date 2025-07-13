@@ -1,0 +1,1 @@
+download the file DONT OPEN IT it will cause damage to your pc then edit the files name to what you want example: openme.py then send it to whoever you want have fun use at your own risk we are not responsable for your actions
